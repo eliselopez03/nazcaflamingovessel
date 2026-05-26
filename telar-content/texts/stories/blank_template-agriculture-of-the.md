@@ -1,0 +1,5 @@
+---
+title: "Agriculture of the Nazca"
+---
+
+The Nazca people relied heavily on agriculture, which was made possible by the rivers and water that came from the surrounding mountain region, creating fertile lands amidst the desert. Crops produced by the Nazca included fine cotton, grapes, maize, and various fruits. To hold and store crops, ceramics would have most likely been used. The soils of the Nazca region were also a large contributor to the type of pottery being produced because of its polychrome minerals that were used to create the various colors found on ceramics. This type of pottery is unique to the Nazca and cannot be found outside this region. The imagery depicted on this vessel are of flamingos not found in the desert where the Nazca lived, but they were closely associated with coastal regions in proximity, where flamingos would have been seen.**
