@@ -2,5 +2,4 @@
 title: "How did the Nazca utilize their environment?"
 ---
 
-****How did the Nazca utilize their environment?****
 As mentioned previously, the Nazca relied on agriculture as a form of subsistence. Despite the unpredictable nature of the climate and landscape, Nazca agriculture was made possible by the rivers and water that came from the surrounding mountain region, creating fertile lands amidst the arid desert. Crops being produced by the Nazca consisted of maize, squash, sweet potatoes, beans, manioc, alongside non-food crops like cotton. To hold and store crops, ceramics would have been used made with the clays from the ground such as fine-grained earthen clay. The soils of the Nazca region were also a large contributor to the type of pottery being produced because of its polychrome minerals that were used to create the various colors found on ceramics. This type of pottery is unique to the Nazca and cannot be found outside this region.
