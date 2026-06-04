@@ -2,5 +2,4 @@
 title: "Who were the Nazca?"
 ---
 
-Pending Answer
-****The Nazca existed as a civilization on the southern coasts of Peru around the time period 100 BC to 800 AD. Their culture relied heavily on religion and agricultural rituals which can be seen especially in the ceramics they created. Due to the lack of a written language, scholars believe that ceramic vessels played a significant role in communicating socially, religiously and ceremonially. They were used not just as decoration but for ceremonies and burials, as well as a way for documentation on aspects of their society and nature.****
+**The Nazca were a pre-Columbian civilization that developed along the southern coast of Peru between roughly 100 BC and 800 AD. They grew out of the earlier Paracas culture, building on its traditions in pottery and textiles to become some of the most skilled artisans of the ancient Andes. Rather than a single centralized empire, the Nazca were a network of communities tied together by a shared religion and artistic style, with the ceremonial center of Cahuachi serving as an important gathering place for ritual and pilgrimage.**
